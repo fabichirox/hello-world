@@ -9,3 +9,6 @@ Im a menber of Recruit Holdings ltd
 My job is to serch the Future menber,cowoker
 
 And I want to be a jinjineer for the future 
+
+Hi! This is Yasuha.
+
